@@ -104,6 +104,7 @@ Ingredients:
 - 2 eggs
 - 2 tsp vanilla extract
 - 8 cups semisweet chocolate chips
+- 10 cups of rum
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
